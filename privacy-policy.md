@@ -1,4 +1,4 @@
-78788343Privacy Policy  
+Privacy Policy  
 ----------------
 
 ### Introduction  
